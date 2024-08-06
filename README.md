@@ -1,1 +1,1 @@
-# FLAMES-GAME
+Flames is a popular game named after acronym friends,lovers,affectionate,marriage,enemy,siblings this game does not accurately predict whether or not an individual is right for you there few  steps in the game
